@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with exclusive liquidity sniper bot | trailing-stop + bundle-transactions, the #1 liquidity sniper bot. Includes trailing-stop and bundle-transactions for a
 
 
 
